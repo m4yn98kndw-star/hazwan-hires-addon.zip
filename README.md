@@ -1,0 +1,1 @@
+# hazwan-hires-addon.zip
